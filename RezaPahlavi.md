@@ -1,18 +1,18 @@
-# 👑 پست های 10 روز اخیر کانال تلگرام شاهزاده رضا پهلوی
+# 📡 پست های 240 ساعت اخیر کانال تلگرام `شاهزاده رضا پهلوی`
 
-**آخرین بروزرسانی:** `2026-04-27 08:05:02` (به وقت ایران)
+**آخرین بروزرسانی:** `2026-04-27 09:06:19` (به وقت ایران)
 
 ---
 
 ### 🕒 2026-04-24 | 21:13:41 IRST
 
 > در چند هفته اخیر در سفر به دور اروپا با اعضای پارلمان‌ها، دولت‌ها و رسانه‌ها گفت‌وگو کرده‌ام.
-> سفر من یک هدف داشت: این که صدای میلیون‌ها ایرانی باشم که تحت سلطه جمهوری اسلامی، ترورهای آن و قطع اینترنت، گروگان گرفته شده‌اند؛ میلیون‌ها ایرانی که صدایشان خاموش شده است.
+> سفر من یک هدف داشت: این که صدای میلیون‌ها ایرانی باشم که تحت سلطه جمهوری اسلامی، ترورهای آن و قطع اینترنت، گروگان گرفته شده‌اند؛ میلیون‌ها ایرانی که صدایشان خاموش شده است. 
 > اما اکنون با اطمینان می‌توانم بگویم این  سکوت، این سانسور، نه‌تنها توسط رژیم در ایران، بلکه توسط رسانه‌های بین‌المللی و به‌ویژه اروپایی انجام می‌شود.
 > بنابراین، می‌خواهم به طور مستقیم با مردم اروپا صحبت کنم.
-> I have spent the past several weeks traveling across Europe, speaking to members of parliaments, governments, and the press.
-> My visit had one objective: to give a voice to the millions of Iranians held hostage by the Islamic Republic, its terror, and its Internet blackout. The millions of Iranians who have been silenced.
-> But I can now say with confidence that that silencing, that censorship, is not just happening at the hands of the regime in Iran, but by the international, and particularly the European, media.
+> I have spent the past several weeks traveling across Europe, speaking to members of parliaments, governments, and the press. 
+> My visit had one objective: to give a voice to the millions of Iranians held hostage by the Islamic Republic, its terror, and its Internet blackout. The millions of Iranians who have been silenced. 
+> But I can now say with confidence that that silencing, that censorship, is not just happening at the hands of the regime in Iran, but by the international, and particularly the European, media. 
 > So I want to speak directly to the people of Europe.
 > @OfficialRezaPahlavi
 
@@ -39,8 +39,7 @@
 
 ### 🕒 2026-04-18 | 16:00:20 IRST
 
-> نسخه کامل سخنرانی در پارلمان سوئد
-> (با زیرنویس فارسی)
+> نسخه کامل سخنرانی در پارلمان سوئد (با زیرنویس فارسی)
 > دوشنبه ١٣ آوریل ٢٠٢۶
 > ٢۴ فروردین ١۴٠۵/٢۵٨۵
 > نسخه با کیفیت بهتر در یوتیوب
