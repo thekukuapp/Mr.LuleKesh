@@ -1,6 +1,6 @@
 # 📡 پست های 240 ساعت اخیر کانال تلگرام `شاهزاده رضا پهلوی`
 
-**آخرین بروزرسانی:** `2026-06-20 18:30:39` (به وقت ایران)
+**آخرین بروزرسانی:** `2026-06-20 21:30:14` (به وقت ایران)
 
 ---
 
@@ -43,20 +43,6 @@
 > Dealing with this regime will fail and we will all face the consequences. The regime’s 47-year war against the Iranian people continues. Just as it has never made peace with its own citizens, it will never truly make peace with the world.  
 >  
 > The international community should back the people of Iran’s fight for freedom. Put them center in any negotiations and in their Iran policy. But let me be clear - with or without international support - this regime will fall. The people of Iran will liberate themselves from tyranny.  
->  
-> @OfficialRezaPahlavi  
-
----
-
-### 🕒 2026-06-10 | 21:09:49 IRST
-
-> Reza Pahlavi | رضا پهلوی pinned a video  
-
----
-
-### 🕒 2026-06-10 | 21:02:26 IRST
-
-> ایران ما، امروز بیش از هر زمان دیگری به اتحاد نیروهای ملی نیاز دارد. چه با حمایت خارجی و چه بدون آن، سرنوشت ایران در دستان خود ماست. ما از این رژیم فرسوده و درمانده نیرومندتریم. ما از مزدورانی که برای نمایش‌های تبلیغاتی به خیابان فرستاده می‌شوند، مصمم‌تر و استوارتریم.  
 >  
 > @OfficialRezaPahlavi  
 
