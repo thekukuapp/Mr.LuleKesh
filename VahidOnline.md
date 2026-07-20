@@ -1,6 +1,6 @@
 # 📡 پست های 24 ساعت اخیر کانال تلگرام `وحید آنلاین`
 
-**آخرین بروزرسانی:** `2026-07-20 20:55:07` (به وقت ایران)
+**آخرین بروزرسانی:** `2026-07-20 21:00:07` (به وقت ایران)
 
 ---
 
@@ -19,8 +19,7 @@
 > Benjamin Netanyahu will not be arrested, in any way, shape, or form, while in the United States of America. He is fighting against the Islamic Republic of Iran, which recently killed 52,000 innocent protestors, and has spent the last 47 years killing American Soldiers, and others. The only ones that should be arrested are the people that led Iran into this unprecedented SPIRAL OF DEATH AND DESTRUCTION, something that should have been dealt with years ago, by previous Presidents&#33; President DONALD J. TRUMP  
 > realDonaldTrump  
 > پیش‌تر:  
-> زهران ممدانی، شهردار نیویورک، اعلام کرد در حال بررسی امکان بازداشت بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در صورت سفر به این شهر برای شرکت در مجمع عمومی سازمان ملل متحد در پاییز امسال است.  
-> @VahidOOnLine  
+> زهران ممدانی، شهردار نیویورک، اعلام کرد در حال بررسی امکان بازداشت بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در صورت سفر به این شهر برای شرکت در مجمع عمومی سازمان ملل متحد در پاییز امسال است. ... @VahidOOnLine  
 >  
 > 📡 @VahidOnline  
 
