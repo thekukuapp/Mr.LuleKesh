@@ -1,12 +1,12 @@
 # 📡 پست های 24 ساعت اخیر کانال تلگرام `وحید آنلاین`
 
-**آخرین بروزرسانی:** `2026-07-20 20:50:07` (به وقت ایران)
+**آخرین بروزرسانی:** `2026-07-20 20:55:07` (به وقت ایران)
 
 ---
 
 ### 🕒 2026-07-20 | 20:29:00 IRST
 
-> پست ترمپ ترجمه ماشین:  
+> پست ترامپ، ترجمه ماشین:  
 > هر بار که ایران یک سرباز آمریکایی را بکشد، بهای آن کشتار را چندین برابر خواهد پرداخت&#33; این دستور به پیت هگست، وزیر جنگ، دنیل کین، رئیس ستاد مشترک ارتش، و تمامی فرماندهان نظامی ابلاغ شده است.  
 > رئیس‌جمهور دونالد جی. ترامپ  
 > Every time Iran kills an American Soldier they will pay for that killing many times over&#33; This directive has been passed on to Secretary of War, Pete Hegseth, Chairman of the Joint Chiefs of Staff, Daniel Caine, and every Leader in the Military. President DONALD J. TRUMP  
