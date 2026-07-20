@@ -1,15 +1,28 @@
 # 📡 پست های 24 ساعت اخیر کانال تلگرام `وحید آنلاین`
 
-**آخرین بروزرسانی:** `2026-07-20 20:30:08` (به وقت ایران)
+**آخرین بروزرسانی:** `2026-07-20 20:35:07` (به وقت ایران)
 
 ---
 
 ### 🕒 2026-07-20 | 20:29:00 IRST
 
-> ⚡️دونالد ترامپ، رئیس جمهوری آمریکا، دوشنبه ۲۹ تیر در شبکه «تروت سوشال» نوشت: «هر بار که ایران یک سرباز آمریکایی را به قتل برساند، بهای آن را چندین برابر خواهد پرداخت&#33;»  
+> پست ترمپ ترجمه ماشین:  
+> هر بار که ایران یک سرباز آمریکایی را بکشد، بهای آن کشتار را چندین برابر خواهد پرداخت&#33; این دستور به پیت هگست، وزیر جنگ، دنیل کین، رئیس ستاد مشترک ارتش، و تمامی فرماندهان نظامی ابلاغ شده است.  
+> رئیس‌جمهور دونالد جی. ترامپ  
+> Every time Iran kills an American Soldier they will pay for that killing many times over&#33; This directive has been passed on to Secretary of War, Pete Hegseth, Chairman of the Joint Chiefs of Staff, Daniel Caine, and every Leader in the Military. President DONALD J. TRUMP  
+> realDonaldTrump  
+> ترامپ در پستی دیگر نوشت:  
+> بنیامین نتانیاهو تحت هیچ شرایطی، به هیچ شکل و طریقی، در ایالات متحده آمریکا بازداشت نخواهد شد. او در حال مبارزه با جمهوری اسلامی ایران است؛ حکومتی که اخیراً ۵۲ هزار معترض بی‌گناه را کشته و طی ۴۷ سال گذشته سربازان آمریکایی و دیگران را به قتل رسانده است.  
 >  
-> او گفت: «این دستور به پیت هگست وزیر جنگ، دنیل کین رئیس ستاد مشترک نیروهای مسلح، و تمامی فرماندهان نظامی ابلاغ شده است.»  
-> @VahidHeadline  
+> تنها کسانی که باید بازداشت شوند، افرادی هستند که ایران را به این چرخه بی‌سابقه مرگ و ویرانی کشاندند؛ موضوعی که رؤسای‌جمهور پیشین باید سال‌ها پیش به آن رسیدگی می‌کردند&#33;  
+>  
+> رئیس‌جمهور دونالد جی. ترامپ  
+> Benjamin Netanyahu will not be arrested, in any way, shape, or form, while in the United States of America. He is fighting against the Islamic Republic of Iran, which recently killed 52,000 innocent protestors, and has spent the last 47 years killing American Soldiers, and others. The only ones that should be arrested are the people that led Iran into this unprecedented SPIRAL OF DEATH AND DESTRUCTION, something that should have been dealt with years ago, by previous Presidents&#33; President DONALD J. TRUMP  
+> realDonaldTrump  
+>  
+> پیش‌تر:  
+> زهران ممدانی، شهردار نیویورک، اعلام کرد دولت او در حال بررسی امکان بازداشت بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در صورت سفر به این شهر برای شرکت در مجمع عمومی سازمان ملل متحد در پاییز امسال است.  
+> @VahidOOnLine  
 >  
 > 📡 @VahidOnline  
 
