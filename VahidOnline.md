@@ -1,6 +1,24 @@
 # 📡 پست های 24 ساعت اخیر کانال تلگرام `وحید آنلاین`
 
-**آخرین بروزرسانی:** `2026-07-22 22:05:46` (به وقت ایران)
+**آخرین بروزرسانی:** `2026-07-22 22:10:46` (به وقت ایران)
+
+---
+
+### 🕒 2026-07-22 | 22:10:46 IRST
+
+> پست عراقچی، ترجمه ماشین:  
+> دکترین دفاعی ما روشن است: چشم در برابر چشم.  
+>  
+> هرگونه تجاوز علیه ایران، از جمله علیه زیرساخت‌های ما، با پاسخی قدرتمند و قاطع روبه‌رو خواهد شد.  
+>  
+> کسانی که به هر شکلی در چنین تجاوزی مشارکت داشته باشند، آن‌ها نیز اهداف مشروع تلقی خواهند شد.  
+> Our defense doctrine is clear: eye for an eye.  
+>  
+> Any aggression against Iran, including our infrastructure, will compel a powerful and decisive response.  
+>  
+> Those who contribute to such aggression, whatever the kind of support, will also be considered as legitimate targets.  
+> araghchi  
+> 📡 @VahidOnline  
 
 ---
 
