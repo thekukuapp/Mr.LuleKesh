@@ -1,6 +1,6 @@
 # 📡 پست های 24 ساعت اخیر کانال تلگرام `وحید آنلاین`
 
-**آخرین بروزرسانی:** `2026-08-12 18:40:08` (به وقت ایران)
+**آخرین بروزرسانی:** `2026-08-12 18:45:12` (به وقت ایران)
 
 ---
 
@@ -13,12 +13,10 @@
 >  
 > آنها هیچ پولی ندارند — کشورشان «از پا درآمده» است. تنها چیزی که دارند اخبار جعلی و تورم ۳۰۰ درصدی است، که دارد بدتر هم می‌شود&#33;  
 >  
-> ایران فقط حرف می‌زند و هیچ اقدامی نمی‌کند؛ دیگر قلدر خاورمیانه نیست.  
->  
-> ستایش از آنِ الله باد&#33;  
+> ایران فقط حرف می‌زند و هیچ اقدامی نمی‌کند؛ دیگر قلدر خاورمیانه نیست. الحمدالله&#33;  
 > رئیس‌جمهور دونالد جی. ترامپ  
+> The U.S.A. has total control over the Strait of Hormuz. I THINK WE WILL KEEP IT&#33; Our Naval Blockade is being called, by everyone, “A WALL OF STEEL,” and there is nothing Iran can do about it. They have no Navy, they have no Air Force, their remaining soldiers are unpaid, the IRGC is decimated and fleeing, and their “Leadership” is uncertain, at best&#33; They have No Money - Their country is “shot.” All they have is FAKE NEWS and 300% INFLATION, and getting worse&#33; Iran is all talk and no action, the Bully of the Middle East No Longer. Praise be to Allah&#33; President DONALD J. TRUMP  
 > realDonaldTrump  
->  
 > 📡 @VahidOnline  
 
 ---
