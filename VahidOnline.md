@@ -1,6 +1,6 @@
 # 📡 پست های 24 ساعت اخیر کانال تلگرام `وحید آنلاین`
 
-**آخرین بروزرسانی:** `2026-08-13 16:50:21` (به وقت ایران)
+**آخرین بروزرسانی:** `2026-08-13 16:55:21` (به وقت ایران)
 
 ---
 
@@ -66,22 +66,6 @@
 > رئیس‌جمهور دونالد جی. ترامپ  
 > The U.S.A. has total control over the Strait of Hormuz. I THINK WE WILL KEEP IT&#33; Our Naval Blockade is being called, by everyone, “A WALL OF STEEL,” and there is nothing Iran can do about it. They have no Navy, they have no Air Force, their remaining soldiers are unpaid, the IRGC is decimated and fleeing, and their “Leadership” is uncertain, at best&#33; They have No Money - Their country is “shot.” All they have is FAKE NEWS and 300% INFLATION, and getting worse&#33; Iran is all talk and no action, the Bully of the Middle East No Longer. Praise be to Allah&#33; President DONALD J. TRUMP  
 > realDonaldTrump  
-> 📡 @VahidOnline  
-
----
-
-### 🕒 2026-08-12 | 16:50:46 IRST
-
-> ایرج درگذشت؛‌ جناب سرهنگی که «پهلوان آواز» ایران بود  
->  
->  
-> حسین خواجه‌امیری، خواننده نامدار موسیقی ایرانی که با نام هنری ایرج شناخته می‌شد، امروز چهارشنبه ۲۱ مرداد ماه در ۹۴ سالگی درگذشت.  
->  
-> درگذشت او موجی از خاطرات دوران طلایی موسیقی و سینمای قبل از انقلاب اسلامی ۱۳۵۷ را زنده کرده است، به ویژه در نزد شنوندگان برنامه‌های رادیویی و یا انبوه تماشاگرانی که آواز برخاسته از سینه ایرج را از لبان ستارگان فیلم‌های آن موقع می‌دیدند و می‌شنیدند.  
->  
-> افسرآوازخوانی که حسن کسایی، اسطوره نی را واداشت «پهلوان آواز» خطابش کند و صدایش برای محمدرضا شجریان، خسرو آواز ایران، «متر و معیار سنجش کیفیت صدا در تاریخ آوازخوانی ما» باشد.  
-> ادامه مطلب  
->  
 > 📡 @VahidOnline  
 
 ---
