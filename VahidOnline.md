@@ -1,6 +1,6 @@
 # 📡 پست های 24 ساعت اخیر کانال تلگرام `وحید آنلاین`
 
-**آخرین بروزرسانی:** `2026-08-13 18:25:21` (به وقت ایران)
+**آخرین بروزرسانی:** `2026-08-13 18:30:21` (به وقت ایران)
 
 ---
 
@@ -72,23 +72,6 @@
 > بارو این سرکوب را «غیرقابل‌تحمل و غیرانسانی» خواند و خواستار پاسخگو شدن عاملان آن و آزادی زندانیان سیاسی شد. او همچنین تاکید کرد مردم ایران باید بتوانند آزادانه آینده خود را تعیین کنند و حقوق بنیادین آنان محترم شمرده شود.  
 > @VahidHeadline  
 >  
-> 📡 @VahidOnline  
-
----
-
-### 🕒 2026-08-12 | 18:25:53 IRST
-
-> پست ترامپ، ترجمه ماشین:  
-> ایالات متحده آمریکا کنترل کامل تنگه هرمز را در دست دارد. فکر می‌کنم آن را حفظ خواهیم کرد&#33;  
->  
-> محاصره دریایی ما را همه «دیوار فولادین» می‌نامند و ایران هیچ کاری نمی‌تواند در برابر آن انجام دهد. آنها نیروی دریایی ندارند، نیروی هوایی ندارند، سربازان باقی‌مانده‌شان حقوق نگرفته‌اند، سپاه پاسداران به‌شدت تضعیف شده و در حال فرار است، و «رهبری» آنها، در بهترین حالت، نامطمئن است&#33;  
->  
-> آنها هیچ پولی ندارند — کشورشان «از پا درآمده» است. تنها چیزی که دارند اخبار جعلی و تورم ۳۰۰ درصدی است، که دارد بدتر هم می‌شود&#33;  
->  
-> ایران فقط حرف می‌زند و هیچ اقدامی نمی‌کند؛ دیگر قلدر خاورمیانه نیست. الحمدالله&#33;  
-> رئیس‌جمهور دونالد جی. ترامپ  
-> The U.S.A. has total control over the Strait of Hormuz. I THINK WE WILL KEEP IT&#33; Our Naval Blockade is being called, by everyone, “A WALL OF STEEL,” and there is nothing Iran can do about it. They have no Navy, they have no Air Force, their remaining soldiers are unpaid, the IRGC is decimated and fleeing, and their “Leadership” is uncertain, at best&#33; They have No Money - Their country is “shot.” All they have is FAKE NEWS and 300% INFLATION, and getting worse&#33; Iran is all talk and no action, the Bully of the Middle East No Longer. Praise be to Allah&#33; President DONALD J. TRUMP  
-> realDonaldTrump  
 > 📡 @VahidOnline  
 
 ---
